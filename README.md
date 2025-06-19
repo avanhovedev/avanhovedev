@@ -1,6 +1,6 @@
 # 💫 About Me:
 - 👋 Hi, I’m @avanhove
-- 💼 I'm working at @CEO-Vision
+- 💼 I'm working at @BDfugue.com
 
 
 
